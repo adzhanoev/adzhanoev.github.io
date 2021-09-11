@@ -1,1 +1,0 @@
-# adzhanoev.github.io
